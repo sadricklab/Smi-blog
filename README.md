@@ -1,4 +1,5 @@
-# Smi-blog
+# SMART MONEY INSIGHTS
+
 🚀 Stay ahead of the market with insights, strategies, and financial education.
 
                OVERVIEW :
