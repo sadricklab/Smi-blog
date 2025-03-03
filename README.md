@@ -1,10 +1,10 @@
 # SMART MONEY INSIGHTS
 
-🚀 Stay ahead of the market with insights, strategies, and financial education.
+🚀Stayahead.Stay informed.Stay wealthy. 
 
                OVERVIEW :
 
-Smart Money Insights (SMI) is a blog focused on market trends, financial education, and strategic investment knowledge.
+Smart Money Insights (SMI) focuses on market trends, financial education, and strategic investment knowledge.
 
 📈 Market Edge – Get real-time insights to stay ahead.
 
