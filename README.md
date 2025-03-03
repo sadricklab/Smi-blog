@@ -1,6 +1,6 @@
 # SMART MONEY INSIGHTS
 
-🚀Stayahead.Stay informed.Stay wealthy. 
+🚀Stay ahead.Stay informed.Stay wealthy. 
 
                OVERVIEW :
 
