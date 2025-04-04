@@ -14,7 +14,6 @@ Smart Money Insights (SMI) focuses on market trends, financial education, and st
 ![image](https://github.com/user-attachments/assets/5d4d0a43-8844-4465-894c-0343e7ee7965)
 
                 Read me: 
- ![Uploading image.jpeg…]()
                
 # Economic Edge: Navigating Recent Global Trends to Optimize Business Strategy and Diversification 🚀
 
